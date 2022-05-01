@@ -19,6 +19,6 @@ Mac mfs will need to put the CD in first then drag the folder of songs over to t
 Orrrrrr, try and find pre-made CDs to use, because the guys that make those have actually good tech and it'll just work and run through your car perfectly, even if they bend the rules on the CDs. Theres still a place or two that sell CDs, try a London Drugs or Sunrise Records. Its way more fun to browse in person than to just order them online.
 
 ---
-I like keeping some of the old stuff around with cars, gives them more flavour. So, if you do stuff like that i'd love to hear about it on IG [@autozonetwink](https://www.instagram.com/autozonetwink/)
+I like keeping some of the old stuff around with cars, gives them more flavour. So, if you do stuff like that i'd love to hear about it on IG [@uninsuredmotorist](https://www.instagram.com/uninsuredmotorist/)
 
 ###### K out :)
